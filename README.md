@@ -1,0 +1,2 @@
+# GadgeX_Shopping
+Phamela Shane B. Mitra_BSIT ANIMATION 3A_CODE-X_MIDTERM PROJECTS
